@@ -1,0 +1,7 @@
+Method
+Step 1
+Heat the sizzler plate. Heat 1 tbsp in a non stick pan. Slice 2-3 spring onions and 5-6 garlic cloves and add to the pan and sauté. Add noodles, salt, ½ tsp soy sauce, 2-3 tbsps water, a pinch of black pepper powder and mix. Transfer into a bowl and keep hot. Heat sufficient oil in a deep pan. Put ginger, 4-5 spring onions, onion in a chopper and crush. Heat 3 tbsps oil in the non stick pan, add the crushed mixture and sauté
+Step 2
+Add babycorns to the hot oil and deep fry for 2-3 minutes. Add mushrooms and continue to deep fry till lightly coloured. Drain and add to the pan with spring onion mixture. Add salt, ½ tsp pepper powder and mix well and transfer into a bowl. Cut the beancurd into 2 big pieces, add the oil remaining in the pan and fry, turning sides, till golden on all sides. Drain and place on a plate. Add broccoli florets to the same pan, add ½ cup water, salt, crushed red chillies and cook.
+Step 3
+Mix cornstarch in 2 tbsps water. Add ½ tsp soy sauce to the pan and mix. Add cornstarch water and mix. Add honey and vinegar and mix well. Switch off the heat. Place the hot sizzler plate on the wooden base. Line the iron plate with cabbage leaves. Spread noodles in the centre, put the deep fried vegetables on one side of the noodles and place the beancurd over them. Put the broccoli florets on other side of the noodles. In the sauce remaining in the pan, add red capsicum and mix well. Put them over the beancurd pieces and serve immediately.
